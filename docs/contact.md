@@ -1,4 +1,4 @@
-# 精东app下载
+# 我爱搞-52G.APP
 
 We would love to hear from you! Reach out to us through any of the following methods:
 
